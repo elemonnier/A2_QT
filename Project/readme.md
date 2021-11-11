@@ -1,4 +1,4 @@
-https://youtu.be/vdIHTbLpPo0
+Game exhibit: https://youtu.be/vdIHTbLpPo0
 
 Hello, welcome to the game. 
 This project is part of our evaluation for our 2nd year (2nd semester)
